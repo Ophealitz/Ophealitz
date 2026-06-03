@@ -15,9 +15,10 @@ i really love this -
 
 
       
-  <img src="Untitled216_20260603112505.png
-  ">
+  <p align="center">
+  <img src="Untitled216_20260603112505.png" alt="Profile Image" width="400" />
 </p>
+
 
 
 _*He really loves me Trust 
