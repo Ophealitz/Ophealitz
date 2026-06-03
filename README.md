@@ -1,7 +1,6 @@
 
 
-$${\color{#F5F5DC}Your \space Beige \ Detective Ophelia On duty\ hello My Name is Ophelia Or Linxie 
-and This fella}$$
+$${\color{#F5F5DC}Your \space Beige \ Detective Ophelia On duty\ }$$
 
       
   <p align="center">
