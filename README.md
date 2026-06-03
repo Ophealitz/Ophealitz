@@ -7,7 +7,7 @@ _Hello My Name is Ophelia or Linxie
 i really love this - 
       
   <p align="center">
-  <img src="Untitled216_20260603112505.png"
+  <img src="Mafioso.jpeg"
     width="400" />
 </p>
 
