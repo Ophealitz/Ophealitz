@@ -12,6 +12,7 @@ $${\color{#253250}  \ Detective Ophelia On duty\ }$$
     
 
 _Mafioso Yume!
+(credits to the artist who made that art)
 
 Approach me if you like!
 (If you are added in my friendlist and is in a sad mood)
