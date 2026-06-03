@@ -7,7 +7,7 @@ _Hello My Name is Ophelia or Linxie
 i really love this - 
 
 
-        <p align="center">
+      
   <img    src="content://media/external/downloads/1000050797" alt="Husband!!!
   ">
 </p>
