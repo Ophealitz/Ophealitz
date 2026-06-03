@@ -1,6 +1,6 @@
 
 
-$${\color{#F5F5DC}Your \space Beige \ Detective Ophelia On duty\ }$$
+$${\color{#253250}  \ Detective Ophelia On duty\ }$$
 
       
   <p align="center">
@@ -16,9 +16,12 @@ Sharing Mafioso yume
 im really nice please approach if you like!
 my Friends wont bite as well while there beside me!!
 -
-$${\color{#F5F5DC}Your \space Beige \PLEASE DO not ignore me im a lottle sensitive \If you Need comfort Please come beside me i will listen hopefully my Presence keeps you abit happy}$$
+$${\color{#253250} \PLEASE DO not ignore me im a little sensitive
+ALSO.
+IF YOU feel sad feel free to approach me if your added in my friend List}$$
 
-
+C+H! ENCOURAGED /
+PONYTOWN ACCOUNT
 
 _*Detectivedebt Ceo Out!
 -
