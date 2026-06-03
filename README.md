@@ -7,11 +7,12 @@ _Hello My Name is Ophelia or Linxie
 i really love this - 
       
   <p align="center">
-  <img src="Mafioso.jpeg"
+  <img src="hq720.jpg"
     width="400" />
 </p>
 
-
+    _"Get them Boys!"
+    
 
 _*He really loves me Trust .
 Sharing Mafioso yume
