@@ -1,16 +1,25 @@
-## Hi there 👋
+<p align="center">
+  <img src="Untitled214_20260603104110.png" alt="Detective's Confession Letter">
+</p>
 
-<!--
-**Ophealitz/Ophealitz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+_Hello My Name is Ophelia or Linxie
+i really love this - 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+        <p align="center">
+  <img    src="content://media/external/downloads/1000050797" alt="Husband!!!
+  ">
+</p>
+
+
+_*He really loves me Trust 
+Sharing Mafioso yume
+im really nice please approach if you like!
+my Friends wont bite as well while there beside me!!
+-
+
+also dont actually make me and the others Uncomfortable as well!
+
+_*Detectivedebt Ceo Out!
+-
