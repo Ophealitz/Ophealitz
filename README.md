@@ -31,11 +31,16 @@ _*Detectivedebt Ceo Out!
 -
 
 
-characters I only Kin -
+Characters I only Kin -
 <p align="Center"
-<img src
+<img src="spawn.jpeg"
+width=400
 
-thank you for  reading!
+Im a person who is attached easily one you try to leave i 
+get Hurt.
+and i overthink Alot .
+
+Thank you for  reading!
 
 
      
