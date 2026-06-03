@@ -1,6 +1,13 @@
 <p align="center">
-  <img src"Untitled214_20260603104110.png" alt="Detective's Confession Letter">
+  <img src="Untitled214_20260603104110.png" alt="Detective's confession letter">
 </p>
+
+ _I hope Don doesnt Mind me sending this.
+This is my Opportunity to do so"_
+
+- Ophelia 
+
+  
 
 
 _Hello My Name is Ophelia or Linxie
