@@ -16,7 +16,6 @@ Sharing Mafioso yume
 im really nice please approach if you like!
 my Friends wont bite as well while there beside me!!
 -
-$${\color{#253250}=
 Please Do not Ignore me.
 i get Sad when im a bit Lonely.
 
