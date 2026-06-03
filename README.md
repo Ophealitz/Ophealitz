@@ -29,7 +29,7 @@ PONYTOWN ACCOUNT
 _*Detectivedebt Ceo Out!
 -
 
-thank you reading!
+thank you for  reading!
 
 
      
