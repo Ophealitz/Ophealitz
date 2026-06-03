@@ -16,7 +16,11 @@ Sharing Mafioso yume
 im really nice please approach if you like!
 my Friends wont bite as well while there beside me!!
 -
-$${\color{#253250} \PLEASE DO not ignore me i get Sad\ }$$
+$${\color{#253250}=
+Please Do not Ignore me.
+i get Sad when im a bit Lonely.
+
+Please respect my Friends and My Boundaries 
 
 C+H! ENCOURAGED /
 PONYTOWN ACCOUNT
