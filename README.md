@@ -16,9 +16,7 @@ Sharing Mafioso yume
 im really nice please approach if you like!
 my Friends wont bite as well while there beside me!!
 -
-$${\color{#253250} \PLEASE DO not ignore me im a little sensitive
-ALSO.
-IF YOU feel sad feel free to approach me if your added in my friend List}$$
+$${\color{#253250} \PLEASE DO not ignore me i get Sad\ }$$
 
 C+H! ENCOURAGED /
 PONYTOWN ACCOUNT
