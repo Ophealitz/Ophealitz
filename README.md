@@ -34,9 +34,9 @@ _*Detectivedebt Ceo Out!
 Characters I only Kin -
 <p align="Center"
 <img src="spawn.jpeg"
-width=400
+width=400 />
 
-Im a person who is attached easily one you try to leave i 
+      Im a person who is attached easily one you try to leave i 
 get Hurt.
 and i overthink Alot .
 
