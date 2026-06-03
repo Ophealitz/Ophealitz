@@ -30,6 +30,11 @@ PONYTOWN ACCOUNT
 _*Detectivedebt Ceo Out!
 -
 
+
+characters I only Kin -
+<p align="Center"
+<img src
+
 thank you for  reading!
 
 
