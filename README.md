@@ -11,11 +11,13 @@ $${\color{#253250}  \ Detective Ophelia On duty\ }$$
     _"Get them Boys!"
     
 
-_*He really loves me Trust .
-Sharing Mafioso yume
-im really nice please approach if you like!
-my Friends wont bite as well while there beside me!!
--
+_Mafioso Yume!
+
+Approach me if you like!
+(If you are added in my friendlist and is in a sad mood)
+i will respect and Give you space 
+and i Worry too much
+
 Please Do not Ignore me.
 i get Sad when im a bit Lonely.
 
@@ -27,6 +29,7 @@ PONYTOWN ACCOUNT
 _*Detectivedebt Ceo Out!
 -
 
+thank you reading!
 
 
      
