@@ -1,10 +1,8 @@
 
 
-  
+$${\color{#F5F5DC}Your \space Beige \ Detective Ophelia On duty\ hello My Name is Ophelia Or Linxie 
+and This fella)$$
 
-
-_Hello My Name is Ophelia or Linxie
-i really love this - 
       
   <p align="center">
   <img src="hq720.jpg"
@@ -19,11 +17,8 @@ Sharing Mafioso yume
 im really nice please approach if you like!
 my Friends wont bite as well while there beside me!!
 -
-also If you Need comfort come here with me and Sit! 
-i do care about My friends <3 
+$${\color{#F5F5DC}Your \space Beige \PLEASE DO not ignore me im a lottle sensitive \If you Need comfort Please come beside me i will listen hopefully my Presence keeps you abit happy}$$
 
-also dont actually make me and the others Uncomfortable as well!
-and Ignoring Me makes me Sad.
 
 
 _*Detectivedebt Ceo Out!
