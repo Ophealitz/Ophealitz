@@ -32,14 +32,18 @@ _*Detectivedebt Ceo Out!
 
 
 Characters I only Kin -
-<p align="Center"
-<img src="spawn.jpeg"
-width=400/<p
-
-      
-      Im a person who is attached easily one you try to leave i 
-get Hurt.
+-Broken Spawn
+    Why i See myself in Him 
+  Im a person who is attached easily,
+  if you reject one of My tries of Showing i Care ,
+  im Sensitive a little in emotions
 and i overthink Alot .
+and i get upset Whenever one of you 
+Decides to Ignore it or back off without Question,
+it Makes me a Bit upset 
+"Have i done something wrong?"
+"Oh im Very sorry for Doing That im Such a stupid Person".
+Please do in Mind when Im friends With you,
 
 Thank you for  reading!
 
