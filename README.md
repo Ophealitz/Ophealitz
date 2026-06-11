@@ -39,10 +39,9 @@ Characters I only Kin -
   im Sensitive a little in emotions
 and i overthink Alot .
 and i get upset Whenever one of you 
-Decides to Ignore it or back off without Question,
+Decides to Ignore me 
 it Makes me a Bit upset 
-"Have i done something wrong?"
-"Oh im Very sorry for Doing That im Such a stupid Person".
+
 Please do in Mind when Im friends With you,
 
 Thank you for  reading!
