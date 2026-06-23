@@ -41,6 +41,8 @@ Thank you for  reading!
      angst btw 
 
            
+ 
+  
   <p align="center">
-  <img src="ANGST WARNING.png"
-    width="400" /
+  <img src="ANGST WARNING.jpg"
+    width="400"/>
