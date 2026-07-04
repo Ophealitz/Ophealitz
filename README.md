@@ -25,6 +25,8 @@ i get Sad when im a bit Lonely.
 
 
 Please respect my Friends and My Boundaries 
+if not followed to these rules
+you will be blocked and unfriended.
 
 
 C+H! ENCOURAGED /
@@ -37,8 +39,8 @@ _*Detectivedebt Ceo Out!
 Thank you for  reading!
 
 
-     also I do Art! example -:
-     angst btw 
+     REMINDER AGAIN - 
+     _*RESPECT MY FRIENDS BOUNDARIES*_
 
            
  
