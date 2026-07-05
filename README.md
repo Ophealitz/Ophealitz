@@ -20,8 +20,11 @@ i will respect and Give you space
 and i Worry too much
 
 
+
+
 Please Do not Ignore me.
 i get Sad when im a bit Lonely.
+
 
 
 Please respect my Friends and My Boundaries 
@@ -55,4 +58,9 @@ Thank you for  reading!
     
     hello also i kin gangle irl  <3
 
-      
+     <p align="center">
+  <img src="images (3).jpeg"
+    width="400">  
+
+
+ <p Align ="center"$${\color{#253250}  \ Hi Gangle! Hi Me :D\ }$$>
