@@ -14,53 +14,37 @@ $${\color{#253250}  \ Detective Ophelia On duty\ }$$
 _Mafioso Yume!
 (credits to the artist who made that art)
 
-Approach me if you like!
-(If you are added in my friendlist and is in a sad mood)
-i will respect and Give you space 
-and i Worry too much
-
-
-
 
 Please Do not Ignore me.
 i get Sad when im a bit Lonely.
-
-
 
 Please respect my Friends and My Boundaries 
 if not followed to these rules
 you will be blocked and unfriended.
 
-
 C+H! ENCOURAGED /
 PONYTOWN ACCOUNT
 
-
-_*Detectivedebt Ceo Out!
-
-
-Thank you for  reading!
 
 
      REMINDER AGAIN - 
      _*RESPECT MY FRIENDS BOUNDARIES*_
 
            
- 
+look a angst yume art! 
   
   <p align="center">
   <img src="ANGST WARNING_20260623114145.jpg"
     width="400"/>
 
-
-
  
     
-    hello also i kin gangle irl  <3
+   hello also i kin gangle irl  <3
 
-     <p align="center">
-  <img src="images (3).jpeg"
+
+  <img src="images (1).jpeg"
     width="400">  
 
 
- <p Align ="center"$${\color{#253250}  \ Hi Gangle! Hi Me :D\ }$$>
+Hi Gangle ! Hi Me :p
+
