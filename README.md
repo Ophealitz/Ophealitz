@@ -48,3 +48,7 @@ look a angst yume art!
 
 Hi Gangle ! Hi Me :p
 
+
+ 
+ ![Demo Video](./images/gangle-gangle-cute.gif)
+
