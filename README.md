@@ -48,3 +48,11 @@ Thank you for  reading!
   <p align="center">
   <img src="ANGST WARNING_20260623114145.jpg"
     width="400"/>
+
+
+
+ 
+    
+    hello also i kin gangle irl  <3
+
+      
