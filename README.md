@@ -39,16 +39,5 @@ look a angst yume art!
 
  
     
-   hello also i kin gangle irl  <3
-
-
-  <img src="images (1).jpeg"
-    width="400">  
-
-
-Hi Gangle ! Hi Me :p
-
-
- 
- ![Demo Video](./images/gangle-gangle-cute.gif)
+   
 
