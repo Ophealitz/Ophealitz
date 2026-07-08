@@ -1,21 +1,17 @@
+Hello My name is Ophelia 
+ im A Mafioso Yumeshipper!,.
+ loved him ever since he was in frozen soul lasted to the time,.i found out forsaken decided to rework the DG version of mafioso because of valid reasons.
+
+ so yeah
+ feel free to come over to me
+,
+I'm very A friendly person.
+as long as you respect my friends Boundaries.
 
 
-$${\color{#253250}  \ Detective Ophelia On duty\ }$$
+ill redesign my Read me later tho.
 
-      
-  <p align="center">
-  <img src="hq720.jpg"
-    width="400" />
-  
-
-      
-<p align= "center"
-<img src="no debt left behind png..jpg"> 
-
-      _Mafioso Yume!
-(credits to the artist who made that art)
-
-
-remaking git . 
+plus! i dont like being ignored though.
+ehm that's all bye bye!
    
 
