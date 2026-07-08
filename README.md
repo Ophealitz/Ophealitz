@@ -15,29 +15,6 @@ _Mafioso Yume!
 (credits to the artist who made that art)
 
 
-Please Do not Ignore me.
-i get Sad when im a bit Lonely.
-
-Please respect my Friends and My Boundaries 
-if not followed to these rules
-you will be blocked and unfriended.
-
-C+H! ENCOURAGED /
-PONYTOWN ACCOUNT
-
-
-
-     REMINDER AGAIN - 
-     _*RESPECT MY FRIENDS BOUNDARIES*_
-
-           
-look a angst yume art! 
-  
-  <p align="center">
-  <img src="ANGST WARNING_20260623114145.jpg"
-    width="400"/>
-
- 
-    
+remaking git . 
    
 
