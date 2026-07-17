@@ -8,6 +8,8 @@ Hello My name is Ophelia
 I'm very A friendly person.
 as long as you respect my friends Boundaries.
 
+i recommend C+H is encouraged when im alone! have fun when talking to me i make sure if your comfortable w me
+
 
 ill redesign my Read me later tho.
 
