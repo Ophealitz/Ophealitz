@@ -11,10 +11,15 @@ as long as you respect my friends Boundaries.
 i recommend C+H is encouraged when im alone! have fun when talking to me i make sure if your comfortable w me
 
 
+hopefully bleg comes back on pt bc genuinely she and i havent been int
+
+
 ill redesign my Read me later tho.
 
 plus! i dont like being ignored though.
 ehm that's all bye bye!
+
+
 
 
 PONYTOWN account!
