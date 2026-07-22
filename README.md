@@ -4,7 +4,7 @@ PONYTOWN account!
 
 
 <p align="center">
-  <img src="pork soda by cuptoast_20260722171623.jpg" alt="pork soda by cuptoast_20260722171623.jpg">
+  <img src="Ophelia's perspective.png" alt="Ophelia's perspective.png">
 </p>
 
 "why dont i say it then?"
