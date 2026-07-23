@@ -9,7 +9,13 @@
  
 
 
-is it our fault?.
+what did i do.
+what made you change?
+
+i just want to talk with you.
+talking yourself w self hatred isnt even going to fix it.
+
+@idontknowbro
 
 --------------------
 <p align="center">
