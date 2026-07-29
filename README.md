@@ -7,6 +7,6 @@ PONYTOWN ACCOUNT!!
 
 
 
-<img src="Mafioso pfp (1).jpeg" alt="Mafioso pfp (1).jpeg">
+<img src="Untitled276_20260729173246.png" alt="Untitled276_20260729173246.png">
 </p>
 
