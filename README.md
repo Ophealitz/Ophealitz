@@ -12,6 +12,6 @@ PONYTOWN ACCOUNT!!
 
  
 
-  <img src="1f4a4ba2-ce4d-4d7e-84c6-32707b4afe20.jpeg" alt="1f4a4ba2-ce4d-4d7e-84c6-32707b4afe20.jpeg">
+  <img src="Untitled276_20260729174339.png" alt="Untitled276_20260729174339.png">
 </p>
 
