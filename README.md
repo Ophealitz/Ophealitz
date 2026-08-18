@@ -23,7 +23,6 @@ PONYTOWN ACCOUNT!!
 <img src="artworks-Ei9MvEh3ELEZ3g5i-8148Fg-t500x500.jpg" alt="artworks-Ei9MvEh3ELEZ3g5i-8148Fg-t500x500.jpg">
 </p>
 
-credits to the artist 
-check fllw git if you like ! <3
+credits to the artist fllw git if you like ! <3
 (it makes me happy :3)
 
