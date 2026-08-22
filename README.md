@@ -1,8 +1,6 @@
-PONYTOWN ACCOUNT!!
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7E383&width=435&lines=Ponytowns+Don+sonnelino+)](https://git.io/typing-svg)
 
-<img src="IMG_20260819_122432.jpg" alt="IMG_20260819_122432.jpg">
-</p>
-thank yeow (https://github.com/pt-fashion)
+
 
 
 
